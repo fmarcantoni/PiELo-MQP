@@ -6,7 +6,7 @@
 
 **Institution:** Worcester Polytechnic Institute (WPI)
 
-**Major Qualifying Project:** Fall 2024 - Spring 2025 | Published on WPI Digital: [https://digital.wpi.edu/concern/student_works/wd3761406?locale=en]
+**Major Qualifying Project (Fall 2024 - Spring 2025):** Published on WPI Digital: [https://digital.wpi.edu/concern/student_works/wd3761406?locale=en]
 
 ---
 
